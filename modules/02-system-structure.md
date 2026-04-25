@@ -75,7 +75,7 @@ The 2023 LFC progress report noted that despite facility closures, staffing leve
 
 ### 2.3 Funding Allocation Imbalance
 
-The structural problem: the vast majority of JJS funding goes to facility operations and staffing. Community-based prevention, diversion, and aftercare services receive the smallest share. As facility populations decline, the state has not redirected savings toward evidence-based alternatives.
+The structural problem: the vast majority of JJS funding goes to facility operations and staffing. Community-based prevention, diversion, and aftercare services receive the smallest share. As facility populations decline, the state has not redirected savings toward evidence-based alternatives. This perpetuates an infrastructure designed for higher census, not better outcomes.
 
 ---
 
